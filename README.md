@@ -1,2 +1,2 @@
 # 🚀 EdTech Pricing | Assignment
-![Ed-tech-Revolution](https://user-images.githubusercontent.com/67474818/137626105-7991f885-bd58-4b27-bb0f-d36af8b92f22.jpg)
+![mTaalMvJJxglJXrmHpD7](https://user-images.githubusercontent.com/67474818/137626262-f1e4cc25-7706-4e01-b99b-f64b8b33f9bd.jpg)
